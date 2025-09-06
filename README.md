@@ -34,7 +34,11 @@ My style is really noticeable
 
 <br>
 <br>
-    
+
+<p align="center">
+<img width="17" height="17" alt="image" src="https://decohoard.carrd.co/assets/images/gallery127/be4e442d.gif?v=e0827b7e" /> My Patreon is currently unavailable
+</p>
+
 <br>
 
 <br>
