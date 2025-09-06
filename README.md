@@ -54,7 +54,7 @@ My style is really noticeable
 
 
 <p align="center">
-<img width="25" height="25" alt="image" src="https://64.media.tumblr.com/b6daf3288b84730741d0abab48dc3df2/d6294286019e9ddc-0e/s75x75_c1/17052f8b3575008060386d0d846a2a9bd58acd4d.gifv" /> I goon to Volfogg <img width="25" height="25" alt="image" src="https://64.media.tumblr.com/b6daf3288b84730741d0abab48dc3df2/d6294286019e9ddc-0e/s75x75_c1/17052f8b3575008060386d0d846a2a9bd58acd4d.gifv" />
+<img width="18" height="18" alt="image" src="https://64.media.tumblr.com/b6daf3288b84730741d0abab48dc3df2/d6294286019e9ddc-0e/s75x75_c1/17052f8b3575008060386d0d846a2a9bd58acd4d.gifv" /> I goon to Volfogg <img width="18" height="18" alt="image" src="https://64.media.tumblr.com/b6daf3288b84730741d0abab48dc3df2/d6294286019e9ddc-0e/s75x75_c1/17052f8b3575008060386d0d846a2a9bd58acd4d.gifv" />
 </p>
 
 
