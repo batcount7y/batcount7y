@@ -28,9 +28,17 @@ c + h encouraged!
 <p align="center">
 Usually cosplaying as a Transformer or a Brave from Brave Series
 <p align="center">
-My style is really noticeable
+My style is really noticeable, however the shading can be pretty different in at least 2 weeks comparision
 </p>
 
+<br>
+<br>
+
+<p align="center">
+Pls pls sign my ata and send gimmicks.. I love receiving them and I'll try to reply to them as soon as possible !!
+<p align="center">
+I'm planning to make new strawpage, but don't worry about losing your post! I'll definitely move your art or questions in a special part of my page :)
+</p>
 
 <br>
 <br>
@@ -40,7 +48,7 @@ My style is really noticeable
 </p>
 
 <br>
-
+<br>
 <br>
 
 
