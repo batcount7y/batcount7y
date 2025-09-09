@@ -76,6 +76,14 @@ I'm planning to make new strawpage, but don't worry about losing your post! I'll
 <img width="80" height="80" alt="image" src="https://files.catbox.moe/0g0rp7.gif" /> <img width="55" height="55" alt="image" src="https://files.catbox.moe/emyy10.gif" /> <img width="70" height="70" alt="image" src="https://files.catbox.moe/c57wmt.gif" />
 </p>
 
+<p align="center">
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/882fe725-143d-48af-8d48-7b7f80cf2f2b" />
+</p>
+<p align="center">
+Me fr
+</p>
+
+
 <br>
 
 <p align="center">
