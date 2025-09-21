@@ -1,5 +1,5 @@
 <p align="center">
-you illuminate⠀⠀ ⠀ ⠀ ⋆⠀⠀ ⠀ ⠀ <ins>as a star</ins>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ✦
+I don't belong here, we gotta  move on, dear⠀⠀ ⠀ ⠀ ⋆⠀⠀ ⠀ ⠀ <ins>Escape from this afterlife</ins>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ✦
 </p>
 
 <br>
