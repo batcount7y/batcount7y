@@ -22,7 +22,10 @@
 
 <br>
 
-
+<p align="center">
+  
+  ${{\color{#595f61}{\textsf{Recommended to view on PC, because it's bad on mobile\ \}}}}\$
+</p>
 
 <img width="30" height="30" alt="image" src="https://decohoard.carrd.co/assets/images/gallery137/ad3ea8b1.gif?v=e0827b7e" />  ${{\color{#595f61}\Large{\textsf{BFYI\ \}}}}\$ <img width="30" height="30" alt="image" src="https://decohoard.carrd.co/assets/images/gallery137/ad3ea8b1.gif?v=e0827b7e" />
 
