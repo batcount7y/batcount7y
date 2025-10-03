@@ -1,4 +1,13 @@
+<div align="center">
+  
+ ${{\color{#456940}\Large{\textsf{I don't belong here, we gotta  move on, dear\ \}}}}\$⠀⠀ ⠀ ⠀ ${{\color{#b1b564}{\textsf{ ⋆\ \}}}}\$⠀⠀ ⠀⠀ ⠀ ⠀ ${{\color{#607d4f}\Large{\textsf{ Escape from this afterlife \}}}}\$⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ${{\color{#b1b564}\Large{\textsf{ ✦\ \}}}}\$
+</p>
+
+<br>
+<br>
+
 <p align="center">
+
 I don't belong here, we gotta  move on, dear⠀⠀ ⠀ ⠀ ⋆⠀⠀ ⠀ ⠀ <ins>Escape from this afterlife</ins>⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ✦
 </p>
 
@@ -16,6 +25,8 @@ I don't belong here, we gotta  move on, dear⠀⠀ ⠀ ⠀ ⋆⠀⠀ ⠀ ⠀ <in
 </p>
 
 <br>
+
+ ${{\color{#456940}\Large{\textsf{BFYI\ \}}}}\$
 
 <p align="center">
 Feel free to add me on Ponytown! I'm usually active on <ins>Transformers or Forsaken</ins> area on <ins>safe server</ins> !
