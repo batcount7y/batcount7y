@@ -34,7 +34,7 @@
 <br>
 <img width="15" height="15" alt="image" src="https://decohoard.carrd.co/assets/images/gallery137/90663599.gif?v=e0827b7e" /> I'm usually active on <ins>Transformers or Forsaken</ins> area on <ins>safe server</ins> ! <img width="15" height="15" alt="image" src="https://decohoard.carrd.co/assets/images/gallery137/90663599.gif?v=e0827b7e" />
 
-I cosplay Transformers or a Brave from Brave Series, although sometimes you can see me cosplaying Zacky with my friend who I match Syn with :P
+I cosplay Transformers or a Brave from Brave Series, although sometimes you can see me cosplaying Zacky with my friend as Syn who I match with :P
 <br>
 My style may have changes, but that's because I simply like to discover with it. Take in mind that me and <ins> @Neon-Nose </ins> 's style is very similar and we don't appreciate being copied
 </p>
