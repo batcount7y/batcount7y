@@ -65,9 +65,8 @@ My style may have changes, but that's because I simply like to discover with it.
 
 <p align="center">
   
- ${{\color{#5f6e60}{\textsf{Patreon currently unavailable\ \}}}}\$ 
+[Patreon](https://www.patreon.com/c/hpnos)
 </p>
-
 
 <br>
 <br>
