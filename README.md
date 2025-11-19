@@ -62,7 +62,7 @@ ${{\color{#997559}{\textsf{Avenged Sevenfoooooooooooooooooooooooooooooooooold fa
 <p align="left"> <img width="15" height="15" alt="image" src="https://files.catbox.moe/i6zrmf.webp" /> Team Fortress 2 & Half Life
 <p align="left"> <img width="15" height="15" alt="image" src="https://files.catbox.moe/i6zrmf.webp" /> Ultrakill
 <br>
-<p align="left"> Additionally Final Fantasy & Doctor Who
+<p align="left"> <img width="15" height="15" alt="image" src="https://files.catbox.moe/i6zrmf.webp" /> Additionally Final Fantasy & Doctor Who
   
 
 <br>
