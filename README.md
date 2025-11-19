@@ -17,11 +17,11 @@ ${{\color{#292827}{\textsf{Escape from this afterlife \}}}}\$ <img width="15" he
 
 
 <p align="center">
-<img width="135" height="135" alt="image" src="https://64.media.tumblr.com/aaad082b210f7a4f1295b2b56291dc87/e416b468fceedf10-8a/s100x200/6c45472e81c1c47ce544742bdd05af06f0171cf5.gifv" />
+<img width="115" height="115" alt="image" src="https://64.media.tumblr.com/aaad082b210f7a4f1295b2b56291dc87/e416b468fceedf10-8a/s100x200/6c45472e81c1c47ce544742bdd05af06f0171cf5.gifv" />
 <a href="https://runningwithscissors.com/">
   <img width="60%" height="60%" alt="image" src="https://64.media.tumblr.com/d6191bbb212d28ac87d6b4d1165c4219/e416b468fceedf10-90/s250x400/cd425768de77d26406760fce4908da49d1a15fe0.jpg" />
 </a>
-<img width="135" height="135" alt="image" src="https://64.media.tumblr.com/51a99c422bdb52d7907ae93cb1a9265b/af71196d61fb4abd-f1/s100x200/5e021336cc07bb5227366c5cc5825819120559af.pnj" />
+<img width="115" height="115" alt="image" src="https://64.media.tumblr.com/51a99c422bdb52d7907ae93cb1a9265b/af71196d61fb4abd-f1/s100x200/5e021336cc07bb5227366c5cc5825819120559af.pnj" />
 </p>
 
 <p align="center">
